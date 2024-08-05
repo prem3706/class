@@ -1,15 +1,6 @@
 hello
 ddg
-dd'g
-ggg
-gg
-g
-dg
-ggd
-fdddedwddw
-wdw
-wdw
-w
+dd'gvcxfddcdsxzsdcfdscfds
 wd
 dw
 gd
