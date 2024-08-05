@@ -1,0 +1,10 @@
+hello
+ddg
+dd'g
+ggg
+gg
+g
+dg
+ggd
+fd
+gd
