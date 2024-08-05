@@ -6,5 +6,11 @@ gg
 g
 dg
 ggd
-fd
+fdddedwddw
+wdw
+wdw
+w
+wd
+dw
 gd
+fsdfsdfsdfsdfds
